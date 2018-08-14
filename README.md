@@ -1,1 +1,1 @@
-# BoviPlus você na frente sempre
+# BoviPlus
